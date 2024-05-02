@@ -4,4 +4,4 @@
 ![image](https://github.com/Redvinz/GroceryGo/assets/95625115/c6132941-e619-4a15-9008-809266fed3ab)
 
 
-![Uploading image.png…]()
+![image](https://github.com/Redvinz/GroceryGo/assets/95625115/c8c50325-a6ad-437e-a5f8-cc95c0b44c2b)
